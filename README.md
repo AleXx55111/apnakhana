@@ -1,4 +1,8 @@
 # apnakhana
 this is my khana page
 <BR>
-Author - Alexx Laiho wildchild
+Author - Daal makhni
+<br>
+paneer khichdi
+<br>
+chicken masala
